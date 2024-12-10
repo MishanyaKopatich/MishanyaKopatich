@@ -1,5 +1,5 @@
 - 👋 Hi, I’m MishanyaKopatich
-- 👀 I’m interested in jpifdgkmorwnijgv
+- 👀 I’m interested in jhgntrgewsdfedf
 - 🌱 I’m currently learning ...gfbedsfbgfrt
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
